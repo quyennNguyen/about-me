@@ -1,8 +1,8 @@
-- 👋 Hi, I’m Quyen Nguyen.
-- 👀 I like cooking, trying out new things, anime, and plushies.
-- 🌱 I recently accomplished my Associate in Computer Science. While I was conitnuing with my Bachelor, I decided to become a self-taught because the freedom is real.
-- 💞️ I would love to make friends (⁄ ⁄>⁄ ▽ ⁄<⁄ ⁄) because I'm lonely ⊙﹏⊙
-- 📫 You can reach me by quyenlearntocode@gmail.com or add me on discord by theonewhoQ#5285.
+- 👋 Hi, I’m QQ.
+- 👀 I like cooking, anime, and plushies.
+- 🌱 I'm a self-taught developer.
+- 💞️ I would love to make friends (⁄ ⁄>⁄ ▽ ⁄<⁄ ⁄)
+- 📫 My discord here -> theonewhoQ#5285 <- *wink wink*
 
 °。°。°。°。°。°。°。゜。°。°。°。
 
