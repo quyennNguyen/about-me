@@ -1,8 +1,10 @@
-- 👋 Hi, I’m QQ.
-- 👀 I like cooking, anime, and plushies.
-- 🌱 I'm a self-taught developer.
-- 💞️ I would love to make friends (⁄ ⁄>⁄ ▽ ⁄<⁄ ⁄)
-- 📫 My discord here -> theonewhoQ#5285 <- *wink wink*
+- 👋 Chao moi nguoi, I'm QQ.
+- 🌼 I like cooking, anime, and plushies.
+- 👩‍💻 I'm a dropout (recently) and decided to be a self-taught developer.
+- 💌 You can reach out to me by 👇👇
+                                 discord: theonewhoQ#5285 🌫
+                                 instagram: _callmeqq_🌫
+                                 (⁄ ⁄>⁄ ▽ ⁄<⁄ ⁄)
 
 °。°。°。°。°。°。°。゜。°。°。°。
 
