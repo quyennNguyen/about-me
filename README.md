@@ -1,6 +1,6 @@
 - 👋 Chao moi nguoi, I'm QQ.
 - 🌼 I like cooking, anime, and plushies.
-- 👩‍💻 I'm a dropout (recently) and decided to be a self-taught developer.
+- 👩‍💻 I'm a self-taught developer baby.
 - 💌 You can reach out to me by 👇👇
                                  discord: theonewhoQ#5285 🌫
                                  instagram: _callmeqq_🌫
