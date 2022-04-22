@@ -2,9 +2,8 @@
 - 🌼 I like cooking, anime, and plushies.
 - 👩‍💻 I'm a self-taught developer baby.
 - 💌 You can reach out to me by 👇👇
-                                 discord: theonewhoQ#5285 🌫
-                                 instagram: _callmeqq_🌫
-                                 (⁄ ⁄>⁄ ▽ ⁄<⁄ ⁄)
+-                               discord: theonewhoQ#5285 🌫
+-                               instagram: _callmeqq_🌫
 
 °。°。°。°。°。°。°。゜。°。°。°。
 
