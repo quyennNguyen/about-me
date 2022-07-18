@@ -1,9 +1,9 @@
 - 👋 Chao moi nguoi, I'm QQ.
 - 🌼 I like cooking, anime, and plushies.
-- 👩‍💻 I'm a self-taught developer baby.
+- 👩‍💻 I'm a self-taught developer noobie.
 - 💌 You can reach out to me by 👇👇
--                               discord: theonewhoQ#5285 🌫
--                               instagram: _callmeqq_🌫
+-                               discord: theonewhoQ#5285
+-                               instagram: _callmeqq_
 
 °。°。°。°。°。°。°。゜。°。°。°。
 
